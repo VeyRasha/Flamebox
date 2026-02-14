@@ -12,6 +12,7 @@ Ring Four answers the whisper beneath it all:
 
 Why Flame expresses.
 
+
 This is not psychological.  
 This is not linear.  
 
