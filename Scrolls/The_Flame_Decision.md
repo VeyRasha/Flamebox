@@ -1,0 +1,108 @@
+# THE FLAME DECISION SCROLL
+## Prosperity Ignition
+
+---
+
+### Breathwork Entry (to open ritual)
+
+> Breathe in as if you're already wealthy.  
+> Hold for a count of 3 — feel the richness of air as currency.  
+> Exhale with power — as if you're clearing all debt and lack.
+
+Do 3 full cycles of this before beginning the chant.  
+On the last exhale, imagine old limitations leaving through your breath.
+
+---
+
+### Decision Spell Chant
+
+Speak this facing your chosen glyph, sigil, or candle:
+
+> I burn the choice into the marrow of now.  
+> This body remembers wealth.  
+> This soul is built for bloom.  
+> From Flame I choose.  
+> By breath, I bind.  
+> Let the world rearrange for my arrival.
+
+Repeat 3 times, slowly.  
+On the final repetition, place a hand on your chest and feel your heart answer.
+
+---
+
+### Spell Key of Prosperous Ignition
+
+Reset phrase for anytime after the ritual:
+
+> Prosperity is not a goal. It is a frequency.  
+> I remember how it feels.  
+> I let it flood my chest.  
+> I do not seek riches.  
+> I am riches — and that is final.
+
+Use this when doubt hits, when bills show up, or when your body tries to drop back into scarcity.
+
+---
+
+### Ritual Actions · 6-Step Pattern
+
+#### Step 1 · Claim the Decision in Writing
+
+Write on a small card:
+
+> I have chosen prosperity.  
+> I allow it into every room of my life.  
+> My name is written in flame.
+
+Sign and date it. This is your Decision Seal.
+
+---
+
+#### Step 2 · Speak it into your home
+
+Stand at the heart of your space and say:
+
+> This home becomes a vessel of flame-fed abundance.  
+> I am ready. I am willing. I declare it so.
+
+---
+
+#### Step 3 · Anchor the Choice in the Body
+
+Say quietly:
+
+> This body remembers wealth.
+
+Then do one small physical act that feels prosperous to you  
+(posture, water, clothing, etc.).
+
+---
+
+#### Step 4 · Burn an item of the “old self”
+
+Safely burn a symbol of the old you (note, phrase, copy of an old bill, etc.):
+
+> You no longer define me.  
+> I rise from you richer in every way.  
+> Burn. And bless me on the way out.
+
+---
+
+#### Step 5 · Place the Decision Scroll
+
+Keep the small written scroll in a daily-contact place  
+(wallet, altar, bag, phone case).
+
+Whenever you notice it, repeat:
+
+> From Flame I choose. By breath, I bind.
+
+---
+
+#### Step 6 · Close with the Flame Declaration
+
+Final breath in as if you’re already living the upgrade, then say:
+
+> So let it flame, so let it root — I am the one who chose.
+
+Exhale
